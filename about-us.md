@@ -12,4 +12,4 @@ Nasz zespół to pasjonaci kulinariów, którzy codziennie pracują nad tym, aby
 
 Przyjdź do naszej "Pierogarni" i odkryj prawdziwy smak tradycji w nowoczesnym wydaniu. Czekamy na Ciebie!
 
-Dziękujemy, że wybrałeś "Pierogarnię"!
+Dziękujemy, że wybrałeś "Pierogarnię"
