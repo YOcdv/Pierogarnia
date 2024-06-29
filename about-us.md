@@ -11,5 +11,4 @@ Jesteśmy miejscem, gdzie tradycja spotyka się z nowoczesnością. Nasza pierog
 Nasz zespół to pasjonaci kulinariów, którzy codziennie pracują nad tym, aby Twój pobyt w naszej pierogarni był wyjątkowy. Dbamy o każdy detal, abyście mogli cieszyć się naszymi pierogami w przyjaznej atmosferze.
 
 Przyjdź do naszej "Pierogarni" i odkryj prawdziwy smak tradycji w nowoczesnym wydaniu. Czekamy na Ciebie!
-
 Dziękujemy, że wybrałeś "Pierogarnię"!
