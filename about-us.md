@@ -1,5 +1,4 @@
 
-=========================
 Witamy w Pierogarni!
 
 Jesteśmy miejscem, gdzie tradycja spotyka się z nowoczesnością. Nasza pierogarnia to idealne miejsce na wyjątkowe spotkania z pysznymi pierogami, przygotowywanymi z najwyższą starannością i pasją. Przywiązujemy dużą wagę do jakości składników oraz autentycznych receptur, aby każdy kęs dostarczał niezapomnianych doznań smakowych.
